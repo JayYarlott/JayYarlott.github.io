@@ -1,1 +1,0 @@
-# jayyarlott.github.io
